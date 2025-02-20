@@ -1,0 +1,1 @@
+It is a place where you can show your work experience and showcase the projects that you are most proud of. Your online portfolio can be shared with its link to companies, hiring managers, and recruiters, so that they can notice you.
